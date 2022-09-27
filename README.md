@@ -4,5 +4,7 @@ Empathy Map Uploaded
 
 Assignment 1 uploaded
 
+Assignment 2 uploaded
+
 
 Literature Survey Uploaded
